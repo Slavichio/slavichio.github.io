@@ -1,4 +1,4 @@
-Privacy Policy for Remember Chinese Words
+Privacy Policy for HSK Memo
 Last updated: March 2026
 This app does not collect, store, or share any personal information.
 Advertising
